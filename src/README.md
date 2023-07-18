@@ -8,7 +8,4 @@ Through reflective writing exercises, mindfulness practices, and communication s
 
 Whether you are struggling to forgive yourself or someone else, The Art of Forgiveness offers a compassionate and thoughtful approach to personal growth and healing. By embracing forgiveness and practicing self-compassion, we can cultivate greater wellbeing and happiness in our lives.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
