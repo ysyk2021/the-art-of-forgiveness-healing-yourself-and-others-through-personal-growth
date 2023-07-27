@@ -38,5 +38,3 @@ Conclusion
 ----------
 
 Effective communication is essential for forgiveness and healing. By initiating difficult conversations with empathy and honesty, practicing active listening skills, and following guidelines for respectful and productive conversation, we can cultivate greater understanding and compassion in our relationships.
-
-In the following chapters, we will explore additional tools and techniques for cultivating forgiveness and improving communication in our lives.

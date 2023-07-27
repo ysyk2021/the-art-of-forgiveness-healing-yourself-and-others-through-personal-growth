@@ -41,5 +41,3 @@ Conclusion
 ----------
 
 Writing and reflection exercises can be a powerful tool for cultivating forgiveness and healing. By starting a forgiveness journal, using prompts for reflective writing, and following tips for maintaining your journal, you can deepen your understanding of forgiveness and cultivate greater compassion and empathy in your life.
-
-In the following chapters, we will explore additional tools and techniques for cultivating forgiveness and improving self-awareness and wellbeing.
