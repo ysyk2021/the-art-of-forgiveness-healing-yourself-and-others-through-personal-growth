@@ -14,8 +14,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Sure, here are 20 Amazon search keywords related to the book "The Art of Forgiveness: Healing Yourself and Others Through Personal Growth":
-
 1. Personal growth
 2. Forgiveness
 3. Mindfulness
