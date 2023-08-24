@@ -1,5 +1,3 @@
-Chapter 5: Writing and Reflection Exercises for Forgiveness
-===========================================================
 
 Writing and reflection exercises can be powerful tools for cultivating forgiveness and healing. In this chapter, we will explore how to start a forgiveness journal, prompts for reflective writing on forgiveness, and tips for maintaining a forgiveness journal.
 

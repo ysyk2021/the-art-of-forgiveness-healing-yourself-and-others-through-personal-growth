@@ -1,5 +1,3 @@
-The Benefits of Forgiveness in the Workplace
-=====================================================================================
 
 Forgiveness is not only essential for personal growth and healing but can also have significant benefits in the workplace. In this chapter, we will explore the benefits of forgiveness in the workplace.
 

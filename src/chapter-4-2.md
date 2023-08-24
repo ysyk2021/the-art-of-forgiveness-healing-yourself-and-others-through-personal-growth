@@ -1,5 +1,3 @@
-Forgiving Others
-===============================================================
 
 Forgiving others is a crucial aspect of personal growth and emotional healing. In this chapter, we will explore the different types of forgiveness and how to practice forgiveness towards others.
 

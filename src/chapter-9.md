@@ -1,5 +1,3 @@
-Chapter 6: Communication Techniques for Forgiveness
-===================================================
 
 Effective communication is essential for forgiveness and healing. In this chapter, we will explore how to initiate difficult conversations about forgiveness, active listening skills for effective communication, and guidelines for conducting productive conversations about forgiveness.
 

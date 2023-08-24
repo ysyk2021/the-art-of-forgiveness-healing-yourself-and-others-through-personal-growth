@@ -1,5 +1,3 @@
-What is Forgiveness?
-===============================
 
 Forgiveness is a profound and transformative process that allows individuals to heal themselves and others through personal growth. In this chapter, we delve into the essence of forgiveness, exploring its definition, principles, and significance in our lives.
 

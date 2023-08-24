@@ -1,5 +1,3 @@
-Part I: Understanding Forgiveness
-=================================
 
 Forgiveness is a complex and multifaceted concept that can be difficult to define. In this part, we will explore the different elements of forgiveness and how it can be used for personal growth and healing.
 

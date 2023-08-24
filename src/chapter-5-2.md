@@ -1,5 +1,3 @@
-Strategies for Overcoming Obstacles
-==============================================
 
 In the journey of forgiveness and personal growth, there are various obstacles that individuals may encounter. In this chapter, we explore effective strategies to overcome these obstacles and continue on the path of healing and forgiveness.
 

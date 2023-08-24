@@ -1,5 +1,3 @@
-Chapter 7: Forgiveness in Relationships
-=======================================
 
 Forgiveness is a critical component of healthy relationships. Holding onto grudges and resentment can lead to distance, disconnection, and even the breakdown of relationships. In this chapter, we will explore the importance of forgiveness in relationships, strategies for rebuilding trust after forgiveness, and how forgiveness can deepen connections with others.
 

@@ -1,5 +1,3 @@
-Tips for Maintaining a Forgiveness Journal
-=======================================================================================================
 
 Writing and reflection exercises can be powerful tools for promoting forgiveness and emotional healing. In this chapter, we will explore tips for maintaining a forgiveness journal and using writing and reflection exercises to promote forgiveness.
 

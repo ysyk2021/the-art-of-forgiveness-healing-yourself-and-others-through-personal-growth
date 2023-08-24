@@ -1,5 +1,3 @@
-Chapter 3: Overcoming Barriers to Forgiveness
-=============================================
 
 Forgiveness can be difficult, especially when there are deep emotional wounds or long-standing conflicts involved. In this chapter, we will explore common obstacles to forgiveness, strategies for overcoming these obstacles, and the role of mindfulness in forgiveness.
 

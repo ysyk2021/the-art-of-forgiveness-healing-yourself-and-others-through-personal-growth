@@ -1,5 +1,3 @@
-The Role of Mindfulness in Forgiveness
-=====================================================================================
 
 Forgiveness can be a challenging process, especially when we are facing barriers such as anger, resentment, or a desire for revenge. In this chapter, we will explore the role of mindfulness in overcoming these barriers and promoting forgiveness.
 

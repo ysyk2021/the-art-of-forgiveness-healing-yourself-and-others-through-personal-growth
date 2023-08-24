@@ -1,5 +1,3 @@
-How Forgiveness Can Improve Relationships
-====================================================
 
 Forgiveness has the power to transform and improve relationships, fostering healing, understanding, and connection. In this chapter, we explore how forgiveness can positively impact our relationships with others and create a foundation for growth and reconciliation.
 

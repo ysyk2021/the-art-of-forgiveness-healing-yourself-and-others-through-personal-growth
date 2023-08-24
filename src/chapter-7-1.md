@@ -1,5 +1,3 @@
-Techniques for Mindfulness-Based Forgiveness Meditation
-============================================================================================================
 
 Mindfulness-based forgiveness meditation is a powerful tool for cultivating forgiveness and healing. In this chapter, we will explore techniques for mindfulness-based forgiveness meditation.
 

@@ -1,5 +1,3 @@
-Seeking Forgiveness from Others
-==============================================================================
 
 Forgiveness is a complex and multifaceted concept that can be applied to many different areas of our lives. In this chapter, we will explore seeking forgiveness from others, one of the most important types of forgiveness for personal growth and emotional healing.
 

@@ -1,4 +1,3 @@
-# How to Start a Forgiveness Journal
 
 Starting a forgiveness journal is a powerful tool for personal growth and healing. It allows you to explore your emotions, release negativity, and cultivate forgiveness in your life. In this chapter, we will guide you through the process of starting a forgiveness journal and provide practical tips to make the most out of this transformative practice.
 

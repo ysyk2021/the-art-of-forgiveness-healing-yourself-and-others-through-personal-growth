@@ -1,5 +1,3 @@
-Part II: Techniques for Practicing Forgiveness
-==============================================
 
 Forgiveness is a process that requires practice and patience. In this part, we will explore different techniques for practicing forgiveness and promoting healing.
 

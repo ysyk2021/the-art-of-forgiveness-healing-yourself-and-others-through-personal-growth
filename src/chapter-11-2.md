@@ -1,5 +1,3 @@
-Strategies for Rebuilding Trust after Forgiveness
-==========================================================================================
 
 Forgiveness is essential in relationships, allowing us to move past hurts and conflicts and rebuild trust with others. In this chapter, we will explore strategies for rebuilding trust after forgiveness.
 

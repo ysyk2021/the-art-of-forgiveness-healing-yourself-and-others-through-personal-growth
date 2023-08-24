@@ -1,5 +1,3 @@
-Recap of Key Takeaways
-==================================
 
 In this book, we have explored the art of forgiveness and how it can promote healing and personal growth. Here are some key takeaways from the book:
 

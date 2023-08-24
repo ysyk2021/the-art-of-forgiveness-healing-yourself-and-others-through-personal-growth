@@ -1,5 +1,3 @@
-The Benefits of Self-Forgiveness and Self-Compassion
-=====================================================================================================
 
 Self-forgiveness and self-compassion are essential for personal growth and healing. In this chapter, we will explore the benefits of self-forgiveness and self-compassion.
 

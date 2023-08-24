@@ -1,5 +1,3 @@
-Chapter 9: Forgiveness in the Workplace
-=======================================
 
 Forgiveness is not only important for personal growth and healing but can also have a significant impact on workplace relationships and productivity. In this chapter, we'll explore the benefits of forgiveness in the workplace and strategies for promoting forgiveness and healing after conflicts.
 

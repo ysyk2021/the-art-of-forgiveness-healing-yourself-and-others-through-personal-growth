@@ -1,5 +1,3 @@
-The Importance of Forgiveness in Healthy Relationships
-===============================================================================================
 
 Forgiveness is essential in maintaining healthy relationships, allowing us to move past conflicts and hurts and promote greater empathy and understanding towards others. In this chapter, we will explore the importance of forgiveness in healthy relationships.
 

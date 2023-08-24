@@ -1,5 +1,3 @@
-Chapter 1: The Benefits of Forgiveness
-======================================
 
 Forgiveness is a powerful tool for healing and personal growth. In this chapter, we will explore the psychological and physical benefits of forgiveness, how it can improve relationships, and its link to personal growth.
 

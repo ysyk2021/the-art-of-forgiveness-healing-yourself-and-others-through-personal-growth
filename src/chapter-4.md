@@ -1,5 +1,3 @@
-Chapter 2: The Different Types of Forgiveness
-=============================================
 
 Forgiveness is a complex and multifaceted concept that can take many different forms. In this chapter, we will explore the three main types of forgiveness: self-forgiveness, forgiving others, and seeking forgiveness from others.
 

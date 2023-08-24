@@ -1,5 +1,3 @@
-Using Forgiveness to Deepen Connections with Others
-============================================================================================
 
 Forgiveness is an essential component of positive relationships. In this chapter, we'll explore how using forgiveness can deepen connections with others and promote overall well-being.
 

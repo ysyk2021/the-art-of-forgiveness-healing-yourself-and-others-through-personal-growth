@@ -1,5 +1,3 @@
-Techniques for Developing Self-Forgiveness and Self-Compassion
-===============================================================================================================
 
 Self-forgiveness and self-compassion are essential for personal growth and healing. In this chapter, we will explore techniques for developing self-forgiveness and self-compassion.
 

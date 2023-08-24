@@ -1,4 +1,3 @@
-# Common Obstacles to Forgiveness
 
 Forgiveness is a powerful tool that can bring healing and growth to both ourselves and others. However, there are common obstacles that can hinder our ability to forgive. In this chapter, we will explore some of these obstacles and provide insights on how to overcome them.
 

@@ -1,5 +1,3 @@
-Chapter 8: Self-Forgiveness and Self-Compassion
-===============================================
 
 Forgiveness is often associated with forgiving others, but it's equally important to develop self-forgiveness and self-compassion. In this chapter, we'll explore the importance of self-forgiveness and self-compassion, techniques for developing these qualities, and the benefits they can bring.
 
